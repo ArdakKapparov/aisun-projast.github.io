@@ -1,1 +1,1 @@
-# aisun.kz
+# lpp.aisun.kz
